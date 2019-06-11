@@ -1,3 +1,6 @@
-# Welcome to my blog
+# Carl Olson Proactive Management Solutions
 
-I'm glad you are here. I plan to talk about ...
+
+ * Creative Team Management Paradyms
+ * Ludicrous Productivity
+ * Rarely any deaths or dismemberments
